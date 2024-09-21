@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MRkitten0110
+- 👨‍💻i like typing in C++
+- 🎥i have youtube channel!
+- 🧑 i'm live in: Belarus🌇
+- 😼 I'm 9 years old 
+- 😄 i like GDI malwares!
+- ⚡ Fun fact: My birthday is march 13
